@@ -1,1 +1,1 @@
-This update is cmoing soon.
+This update is coming soon.
